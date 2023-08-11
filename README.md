@@ -1,4 +1,4 @@
-![image](https://i.postimg.cc/mkpCvQ4G/Discord-Plugins-White.png)
+![image](https://i.postimg.cc/dVsyb3k4/New-Project.png)
 
 ---
 <p align = "center">
